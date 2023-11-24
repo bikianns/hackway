@@ -1,1 +1,1 @@
-# hackway
+hack into any system# hackway                                                                                                                                                                  access all paswords.
